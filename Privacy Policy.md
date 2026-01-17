@@ -86,7 +86,7 @@ We do not control these third-party sources and recommend reviewing their respec
 
 ## 9. Your Rights
 
-- Request deletion or ask questions: privacy@nexuscorebrief.app
+- Request deletion or ask questions: nexuscorebrief@gmail.com
 - We comply with CCPA and GDPR where applicable (minimal data collected).
 - Delete all data by uninstalling the app.
 
@@ -107,7 +107,7 @@ We do not control these third-party sources and recommend reviewing their respec
 
 ## Contact
 
-**privacy@nexuscorebrief.app**
+**nexuscorebrief@gmail.com**
 
 ---
 
