@@ -133,7 +133,7 @@ You agree NOT to:
 
 For any questions about these Terms, please contact us at:
 
-**legal@nexuscorebrief.app**
+**nexuscorebrief@gmail.com**
 
 ---
 
